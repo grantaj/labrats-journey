@@ -1,41 +1,41 @@
-**Announcement 1:** "Passengers, our next stop is **Memory Lane Station**. Please keep a close watch on your belongings, especially those you've forgotten."
+**Announcement 1:** "Shortly we will arrive at **Memory Lane**. Please keep a close eye on your belongings, especially those you've forgotten."
 
 Whispers of the past,
 Dancing on a gentle breeze,
-Forgotten tales speak.
+Always out of reach.
 
-**Announcement 2:** "We're now approaching **Dreamscape Junction**. Here, the tracks are woven with hopes and the benches are made of fleeting moments. Mind the gap between reality and fantasy."
+**Announcement 2:** "We're now approaching **Dreamscape Junction**. Alight here for unconscious hopes and unresolved worries. Mind the gap between reality and fantasy."
 
-Hopes meld with skyline,
+Wavering skyline,
 Fleeting moments shimmering,
-Mirage on the tracks.
+A mirage ahead.
 
-**Announcement 3:** "Ladies and gentlemen, we will soon be arriving at **Deja Vu Central**. You might feel like you've been here before, but can't quite remember when."
+**Announcement 3:** "Ladies and gentlemen, we will soon be arriving at **Deja View**. You might feel like you've been here before, but can't quite remember when."
 
 Air thick with perfume,
-Strangers that seem so familiar,
-Echoes of time sing.
+Strangers seem so familiar,
+Reverberation.
 
-**Announcement 4:** "Next stop: **Ephemeral Point**. Please note, the platform is only visible for a short while, much like moments that quickly pass us by. Hold on to them while you can."
+**Announcement 4:** "Next stop: **Ephemerality**. Please note, the platform is only visible for a short while. Hold on to the handrail while you can."
 
-Moments dissolve fast,
-Like morning dew they vanish,
-Urging souls to grasp.
+Moments dissolving,
+Vanishing like morning dew,
+On a blade of gras.
 
-**Announcement 5:** "We are now pulling into **Temporal Twist Terminal**. Time here is not linear. Hours feel like minutes, and seconds might last a lifetime."
+**Announcement 5:** "in a few moments we will be making a short top at **Temporal Paradox**. Time here is not linear. Please be careful of meeting a past or future self. "
 
-Dance of hours, seconds,
-Moments stretch and compress fast,
-Time's waltz is timeless.
+Relativity
+With sufficient gravity
+Time behaves strangely
 
-**Announcement 6:** "Prepare to disembark at **Liminality Landing**. This station is neither here nor there. You're in between destinations, and perhaps even between selves."
+**Announcement 6:** "For those wishing to continue travelling, please prepare to disembark at **Liminality Landing**. This station is neither here nor there. From here you may connect to any destination. "
 
-Twilight meets the dawn,
+Twilight meeting dawn,
 Suspended between two realms,
 Shadows merge with light.
 
-**Announcement 7:** "Last stop: **Journey's End Junction**. Remember, every ending is a new beginning. As we traverse life, it's not just the destinations but the space between them that shapes us. Reflect on the ride, and thank you for traveling with us."
+**Announcement 7:** "Approaching **Worldsend**. This is the final stop, everything terminates here. All passengers please depart the train. Reflect on your journey, and thank you for traveling with us."
 
-Every ending's new,
-Verse penned in life's poetry,
-Tracks stretch on and on.
+Constantly moving, 
+It's not the destination
+A new beginning
