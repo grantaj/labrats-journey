@@ -20,13 +20,13 @@ Reverberation.
 
 Moments dissolving,
 Vanishing like morning dew,
-On a blade of gras.
+On a blade of grass.
 
 **Announcement 5:** "in a few moments we will be making a short top at **Temporal Paradox**. Time here is not linear. Please be careful of meeting a past or future self. "
 
-Relativity
-With sufficient gravity
-Time behaves strangely
+Relativity - 
+With sufficient gravity, 
+Time behaves strangely. 
 
 **Announcement 6:** "For those wishing to continue travelling, please prepare to disembark at **Liminality Landing**. This station is neither here nor there. From here you may connect to any destination. "
 
@@ -37,5 +37,5 @@ Shadows merge with light.
 **Announcement 7:** "Approaching **Worldsend**. This is the final stop, everything terminates here. All passengers please depart the train. Reflect on your journey, and thank you for traveling with us."
 
 Constantly moving, 
-It's not the destination
-A new beginning
+Another destination - 
+A new beginning. 
