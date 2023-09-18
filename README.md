@@ -1,2 +1,2 @@
 # labrats-journey
-Labrats Journey Show October 2023
+Labrats Labyrinth Express Show October 2023
