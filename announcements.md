@@ -1,3 +1,6 @@
+**Announcement 0**
+The next departure from platform square root of negative one is the six forty two Labyrinth Express service stopping at all stations to Worldsend. All passengers please take your seats and prepare for departure from reality. 
+
 **Announcement 1:** "Shortly we will arrive at **Memory Lane**. Please keep a close eye on your belongings, especially those you've forgotten."
 
 Whispers of the past,
